@@ -1,4 +1,4 @@
-## Hi, U´m Jose 🪐
+## Hi, I´m Jose 🪐
 
 Designer an illustrator <br/>
 Atlassian technician  <br/>
